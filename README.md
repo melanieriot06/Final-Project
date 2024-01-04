@@ -16,7 +16,7 @@ This project is for Entity Academy's final project, showcasing the skills studen
 💞️ I’m looking to collaborate on data analysit projects for experience
 
 📫 How to reach me ... email me at mdeniseholden@gmail.com
-or find me on Linkedin: www.linkedin.com/in/melanie-holden-7bb209aa
+or find me on Linkedin: www.linkedin.com/in/melaniedeniseholden
 
 
 ## 🔗 Links
